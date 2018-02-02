@@ -1,2 +1,1 @@
-# kreator-a
-Kreato
+Q.D.T Rezonanca
